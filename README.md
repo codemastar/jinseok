@@ -1,0 +1,2 @@
+# jinseok
+my study
